@@ -1,7 +1,7 @@
 - 👋 Hello!! @rafaelnet29
 - 👀 Estou interessado em aprender
 - 🌱 atualmente estudando e cursando alguns cursos de TI
-- 💞️ Se eu souber e puder ajudo!!!!!!!!
+- 💞️ Se eu souber e puder, ajudo!
 - 📫 rssnet89@outlook.com 
 
 <!---
